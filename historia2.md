@@ -1,3 +1,3 @@
-**história 2**
+**história 2.**
 
 Feature
